@@ -1,1 +1,1 @@
-- ⚡ Curiosities: I love animals and video games.
+- ⚡
